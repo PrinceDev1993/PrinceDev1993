@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **HTML,CSS, JS, REACT JS, SSMS, Marriage and Relationships**
 
-- 📫 How to reach me **evangelize4me@gmail.com**
+- 📫 How to reach me **princewillonyebuchi22@gmail.com**
 
 - ⚡ Fun fact **I am +1 daily.**
 
